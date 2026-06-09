@@ -1,4 +1,4 @@
-#  
+#  my avatar secure Scripts is the best my avatar Script, featuring custom skins and infinite resources. Safe and powerful for all your needs.
 
 
 
